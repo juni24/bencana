@@ -1,0 +1,2 @@
+# bencana
+tugas ahir
